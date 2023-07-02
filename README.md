@@ -1,1 +1,1 @@
-See also: https://sr.ht/~rwv/
+Public activity at https://sr.ht/~rwv/
